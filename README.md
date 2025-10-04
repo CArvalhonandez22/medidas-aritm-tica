@@ -1,0 +1,1 @@
+# medidas-aritm-tica
